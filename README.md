@@ -1,7 +1,5 @@
 ~oioi!!
 
-~she/her
-
 ~**hginnyy**✨✨ 
 
 
